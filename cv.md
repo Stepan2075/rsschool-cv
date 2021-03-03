@@ -1,6 +1,6 @@
 # CURRIKULUM VITAE
 
-## STEPAN KRIVOSHEYA
+## STSIAPAN KRYVASHEYA
 
 _e-mail: krivosheya@tut.by_
 
